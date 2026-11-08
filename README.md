@@ -1,6 +1,6 @@
 <a href="https://ibb.co/nhzdKgq"><img src="https://i.ibb.co/NwZDGVg/photo-2026-11-08-03-04-38.jpg" alt="photo-2026-11-08-03-04-38" border="0"></a>
 
-${\color{#8E8E8E}Transphobic, racist, ableist, sexist AND homophobic if i feel like it, 
+${\color{#8E8E8E}Transphobic, racist, ableist, sexist AND homophobic if i feel like it,}$
 
 I don't care enough to have a deep-rooted opinion on groups of people,
 
@@ -14,4 +14,4 @@ bully anyone I don't like for interacting for the sake of just doing it. I don't
 
 always feel like arguing though, so just expect whatever if you walk up to me
 
-spouting nonsense. It's always a gamble of how much you piss me off.}$
+spouting nonsense. It's always a gamble of how much you piss me off.
