@@ -15,3 +15,5 @@ bully anyone I don't like for interacting for the sake of just doing it. I don't
 always feel like arguing though, so just expect whatever if you walk up to me
 
 spouting nonsense. It's always a gamble of how much you piss me off.
+
+${\color{#8E8E8E}txt}$
