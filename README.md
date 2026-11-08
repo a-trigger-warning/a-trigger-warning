@@ -12,7 +12,7 @@ ${\color{#c69f20}outᅟofᅟmyᅟfaceᅟPUSSY!ᅟIᅟalsoᅟreallyᅟhateᅟanyo
 
 ${\color{#b97f1e}15,ᅟandᅟamᅟanᅟillᅟpieceᅟofᅟshitᅟthatᅟwillᅟbullyᅟanyoneᅟIᅟdon'tᅟlike}$
 
-${\color{#b32828}forᅟinteractingᅟforᅟtheᅟsakeᅟofᅟjust doing it.ᅟIᅟdon'tᅟalwaysᅟfeel}$
+${\color{#b32828}forᅟinteractingᅟforᅟtheᅟsakeᅟofᅟjustᅟdoingᅟit.ᅟIᅟdon'tᅟalwaysᅟfeel}$
 
 ${\color{#121493}likeᅟarguingᅟthough,ᅟsoᅟjustᅟexpectᅟwhateverᅟifᅟyouᅟwalkᅟupᅟtoᅟme}$
 
