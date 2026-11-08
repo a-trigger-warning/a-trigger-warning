@@ -4,7 +4,7 @@ ${\color{#000000}Transphobic,ᅟracist,ᅟableist,ᅟsexistᅟANDᅟhomophobic�
 
 ${\color{#121493}don'tᅟcareᅟenoughᅟtoᅟhaveᅟaᅟdeep-rootedᅟopinionᅟonᅟgroupsᅟof}$
 
-${\color{#b32828}people,ᅟdoesn't matterᅟifᅟiᅟbelongᅟtoᅟsomeᅟmajorityᅟorᅟminority,}$
+${\color{#b32828}people,ᅟdoesn'tᅟmatterᅟifᅟiᅟbelongᅟtoᅟsomeᅟmajorityᅟorᅟminority,}$
 
 ${\color{#b97f1e}iᅟWILLᅟ'discriminate'ᅟitᅟifᅟiᅟwantᅟtoᅟandᅟifᅟyou'reᅟscaredᅟthenᅟget}$
 
